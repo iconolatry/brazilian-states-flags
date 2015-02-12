@@ -7,7 +7,7 @@ brazilian-states-flags
 
 **Alagoas**
 
-Amapá
+**Amapá**
 
 Amazonas
 
