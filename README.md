@@ -5,7 +5,7 @@ brazilian-states-flags
 
 **Acre**
 
-Alagoas
+**Alagoas**
 
 Amapá
 
