@@ -1,4 +1,4 @@
-brazilian-states-flags
+Brazilian States Flags Icon Web Font
 ======================
 
 ###Flags of Brazilian States
@@ -9,7 +9,7 @@ brazilian-states-flags
 
 **Amapá**
 
-Amazonas
+**Amazonas**
 
 Bahia
 
