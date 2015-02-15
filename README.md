@@ -11,7 +11,7 @@ Brazilian States Flags Icon Web Font
 
 **Amazonas**
 
-Bahia
+**Bahia**
 
 Ceara
 
