@@ -13,7 +13,7 @@ Brazilian States Flags Icon Web Font
 
 **Bahia**
 
-Ceara
+**Ceara**
 
 Distrito Federal
 
