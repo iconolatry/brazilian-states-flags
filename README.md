@@ -15,7 +15,7 @@ Brazilian States Flags Icon Web Font
 
 **Ceara**
 
-Distrito Federal
+**Distrito Federal**
 
 Espírito Santo
 
