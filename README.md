@@ -17,9 +17,9 @@ Brazilian States Flags Icon Web Font
 
 **Distrito Federal**
 
-Espírito Santo
+**Espírito Santo**
 
-Goiás
+**Goiás**
 
 Maranhão
 
