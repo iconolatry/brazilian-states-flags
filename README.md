@@ -21,7 +21,7 @@ Brazilian States Flags Icon Web Font
 
 **Goiás**
 
-Maranhão
+**Maranhão**
 
 Mato Grosso
 
