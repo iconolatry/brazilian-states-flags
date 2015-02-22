@@ -27,7 +27,7 @@ Brazilian States Flags Icon Web Font
 
 **Mato Grosso do Sul**
 
-Minas Gerais
+**Minas Gerais**
 
 Pará
 
