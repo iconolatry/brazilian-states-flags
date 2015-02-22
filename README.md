@@ -25,7 +25,7 @@ Brazilian States Flags Icon Web Font
 
 Mato Grosso
 
-Mato Grosso do Sul
+**Mato Grosso do Sul**
 
 Minas Gerais
 
