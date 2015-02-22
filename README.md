@@ -23,7 +23,7 @@ Brazilian States Flags Icon Web Font
 
 **Maranhão**
 
-Mato Grosso
+**Mato Grosso**
 
 **Mato Grosso do Sul**
 
