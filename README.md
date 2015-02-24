@@ -29,7 +29,7 @@ Brazilian States Flags Icon Web Font
 
 **Minas Gerais**
 
-Pará
+**Pará**
 
 Paraíba
 
