@@ -31,7 +31,7 @@ Brazilian States Flags Icon Web Font
 
 **Pará**
 
-Paraíba
+**Paraíba**
 
 Paraná
 
