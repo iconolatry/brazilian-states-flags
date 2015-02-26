@@ -33,7 +33,7 @@ Brazilian States Flags Icon Web Font
 
 **Paraíba**
 
-Paraná
+**Paraná**
 
 Pernambuco
 
