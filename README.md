@@ -35,7 +35,7 @@ Brazilian States Flags Icon Web Font
 
 **Paraná**
 
-Pernambuco
+**Pernambuco**
 
 Piauí
 
