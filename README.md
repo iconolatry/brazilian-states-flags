@@ -37,7 +37,7 @@ Brazilian States Flags Icon Web Font
 
 **Pernambuco**
 
-Piauí
+**Piauí**
 
 Rio de Janeiro
 
