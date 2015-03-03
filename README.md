@@ -39,7 +39,7 @@ Brazilian States Flags Icon Web Font
 
 **Piauí**
 
-Rio de Janeiro
+**Rio de Janeiro**
 
 Rio Grande do Norte	
 
