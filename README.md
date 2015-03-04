@@ -41,7 +41,7 @@ Brazilian States Flags Icon Web Font
 
 **Rio de Janeiro**
 
-Rio Grande do Norte	
+**Rio Grande do Norte**	
 
 Rio Grande do Sul
 
